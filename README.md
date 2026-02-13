@@ -50,7 +50,7 @@ $${\color{#f4f183} ୨ৎ \space She\space / \space Her \space :: \space They \s
 <summary> $${\color{#83def4} .꩜ \space dni \space ! }$$ </summary>
 
 ![QkQx7RU](https://github.com/user-attachments/assets/66af2f6f-d3c1-44e3-bb1c-7104038f5ee3)
-₊˚ ┊ DNI if you talk about anything sex related or sexual. Will be blocked (◞‸ ◟)💧
+₊˚ ┊ DNI if you talk about anything sex related or sexual unless im conf with it. Will be blocked if not conf (◞‸ ◟)💧
 
 ![QkQx7RU](https://github.com/user-attachments/assets/66af2f6f-d3c1-44e3-bb1c-7104038f5ee3)
 ₊˚ ┊ Fake illnesses, or experiences (past or present). Will be blocked (⇀‸↼‶)
